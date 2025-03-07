@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently a student at the Technical University of Darmstadt
+A student at the Technical University of Darmstadt
 
 
 ## 🌐 Socials:
